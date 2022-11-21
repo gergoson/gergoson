@@ -1,0 +1,5 @@
+- Hi, I’m @gergoson.
+- I’m interested in physics, chemistry and mathematics.
+- I'm not looking to collaborate.
+- You don't reach me.
+- I definitley know what I'm doing.
